@@ -1,1 +1,1 @@
-le pire cours git
+le meilleur cours git de tous les temps
